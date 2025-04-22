@@ -2,6 +2,10 @@
 
 Hello, I am a Low to Mid-Poly Builder with creative thinking and designing.
 
+
+
+
+
 # Discord User is generallycertified, and Roblox User is noniponi12
 
 
@@ -20,3 +24,5 @@ I like building as it is enjoyable and can pay-off both at the same time.
 # *THE FOLLOWING ARE MADE WITH NO MODELS AND ONLY PARTS.*
 ![Image](https://github.com/user-attachments/assets/318c45cb-758a-4e45-886b-f693fbdd9450)
 ![Image](https://github.com/user-attachments/assets/ad6b7017-e777-41a2-8bb7-e937b21589f4)
+
+# DM ME FOR MORE INFORMATION.
