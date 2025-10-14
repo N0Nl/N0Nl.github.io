@@ -1,18 +1,23 @@
 **N0Nl.github.io**
 
-Hello, I am a low- to mid-poly builder who uses creative thinking and design.
+Hello, We are two developers who work together to bring you the best games, in half the time.
 
 
 
 
 
-# Discord User is generallycertified, and Roblox User is noniponi12
 
 
-****About me****
-I am a 15-year-old builder on a mission to satisfy you. I specialize in low-poly and mid-poly building.
-I have about 1.5 years of experience.
-I like building as it is enjoyable and can pay-off both at the same time.
+# Contacts:
+Discord: generallycertified
+Roblox: noniponi12
+
+
+****About me ****
+I am a 15-year old with 1 year of Roblox studio and 3 months of blender.
+I have alot of time to create and perfect what you desire.
+
+
 
 
 
