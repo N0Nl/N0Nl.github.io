@@ -1,12 +1,12 @@
 **N0Nl.github.io**
 
-Hello, I am a developer who will work to bring to life whatever you say you want me to make.
+Hello, We are developers who can work to bring to life whatever you say you want us to make.
 
-# About me
-I am a 15-year old with 1 year of Roblox studio and 3 months of blender.
+# About us
+I generallycertified/noniponi12 am a 15-year old with 1 year of Roblox studio and 3 months of blender.
+I Saaditle am a 17-year old with 1 year of Roblox studio no experience but am good.
 My mission is to create and bring to life whatever you describe in words.
 My local time is UTC+5 and I am from the maldives.
-
 # Contacts:
 
 Discord: generallycertified ----- Roblox: noniponi12
