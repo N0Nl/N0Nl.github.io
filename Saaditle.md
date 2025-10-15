@@ -7,21 +7,21 @@ I work with low-poly builds and I'm constantly looking to improve.
 
 Some Exampels 
 ![image alt](https://github.com/N0Nl/N0Nl.github.io/blob/main/image.png?raw=true)
-
+Or This
 ![image alt](https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(6).png?raw=true)
-
+This
 ![image alt](https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(5).png?raw=true)
-
+Like This
 ![image alt](https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(4).png?raw=true)
-
+Or This One
 ![image alt](https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(3).png?raw=true)
-
+Like
 ![image alt](https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(2).png?raw=true)
-
+And This One
 ![image alt](https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(1).png?raw=true)
 
 
-I currently have no examples to provide, but I will have some soon.
+I currently have experience, but I will have some soon.
 
 I love creating and building things, and I'm looking forward to continuing to grow.
 
