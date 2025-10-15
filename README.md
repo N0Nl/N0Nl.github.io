@@ -1,6 +1,6 @@
 **N0Nl.github.io**
 
-Hello, We are two developers who work together to bring you the best games, in half the time.
+Hello, I am a developer who will work to bring to life whatever you say you want me to make.
 
 # About me
 I am a 15-year old with 1 year of Roblox studio and 3 months of blender.
