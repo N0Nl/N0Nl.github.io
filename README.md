@@ -9,8 +9,9 @@ Hello, We are two developers who work together to bring you the best games, in h
 
 
 # Contacts:
-Discord: generallycertified
-Roblox: noniponi12
+**Discord: generallycertified**
+------------------------------
+**Roblox: noniponi12**
 
 
 ****About me ****
