@@ -2,6 +2,15 @@
 
 Hello, We are two developers who work together to bring you the best games, in half the time.
 
+# About me
+I am a 15-year old with 1 year of Roblox studio and 3 months of blender.
+My mission is to create and bring to life whatever you describe in words.
+My local time is UTC+5 and I am from the maldives.
+
+# Contacts:
+
+Discord: generallycertified ----- Roblox: noniponi12
+
 # Past projects:
 
 1: **Tycoon RNG**
@@ -12,6 +21,11 @@ Conrtibutions: Built the whole complete map with a mix of CSG and Environmental 
 
 Time: Whole map built in 7 days.
 
+**Images of my work:**
+
+https://github.com/N0Nl/N0Nl.github.io/blob/main/unnamed.png?raw=true
+https://github.com/N0Nl/N0Nl.github.io/blob/main/unnamed%20(1).png?raw=true
+
 2: **Ball Tower Defense**
 *Description:* A stud-style tower defense game with multiple maps and multiple ball-towers to defeat the other shapes.
 
@@ -20,16 +34,20 @@ and the Lab Attack map along with interior with some secret areas.
 
 Time: 3 different detailed maps built in around 1.5 weeks with my partner.
 
-# Contacts:
+**Images of my work:**
 
-Discord: generallycertified ----- Roblox: noniponi12
+https://github.com/N0Nl/N0Nl.github.io/blob/main/image.png?raw=true
+https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(6).png?raw=true
+https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(5).png?raw=true
+https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(4).png?raw=true
+https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(3).png?raw=true
+https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(2).png?raw=true
+https://github.com/N0Nl/N0Nl.github.io/blob/main/image%20(1).png?raw=true
+
+
 ------------------------------
 
 
-**About me**
-I am a 15-year old with 1 year of Roblox studio and 3 months of blender.
-My mission is to create and bring to life whatever you describe in words.
-My local time is UTC+5 and I am from the maldives.
 
 
 
